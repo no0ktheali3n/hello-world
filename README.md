@@ -11,4 +11,4 @@ I wanna build some cool things.<br>
 Some would call me Seer. <br>
 Healers/Builders/Teachers should find me on noti gang. <br>
 Businesses are cool. <br>
-Here's to 2024. <br>
+Here's to 2024 and engaging in a state of curious, creative play. <br>
