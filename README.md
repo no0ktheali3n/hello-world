@@ -9,6 +9,6 @@ Stable Diffusion is kinda neat too. <br>
 <br>
 I wanna build some cool things.<br>
 Some would call me Seer. <br>
-Healers/Builders/Teachers should find me on noti gang.
+Healers/Builders/Teachers should find me on noti gang. <br>
 Businesses are cool. <br>
 Here's to 2024. <br>
