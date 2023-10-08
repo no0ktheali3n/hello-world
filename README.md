@@ -12,3 +12,4 @@ Some would call me Seer. <br>
 Healers/Builders/Teachers should find me on noti gang. <br>
 Businesses are cool. <br>
 Here's to 2024 and engaging in a state of curious, creative play. <br>
+Here's to building the thing that gets us to the thing. <br>
